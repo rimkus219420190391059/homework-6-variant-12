@@ -1,0 +1,1 @@
+# homework-6-variant-12
